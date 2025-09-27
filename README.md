@@ -1,6 +1,4 @@
 # Esteff Gutierrez
 ## actualizaciones
 # pronto
-escribo desde mi pc secundaria.prueba
-# saludoshelouholamundo!
-## im very happy. thanks for read
+escribo desde mi pc secundaria
