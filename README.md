@@ -1,4 +1,4 @@
 # Esteff Gutierrez
 ## actualizaciones
 # pronto
-escribo desde mi pc secundaria
+estoy estudiando programación, teno 23 años y soy mexicana. Vivo en CDMX
